@@ -5,7 +5,7 @@ Author
 
   Abubakar Abdul <abdulabubakarsadiq94@gmail.com>
   
-  [Twitter](https://x.com/biggdreamz)
+  [Twitter](https://x.com/bigg__dreamz)
 
 
 ## Screenshot of first one
